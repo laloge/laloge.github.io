@@ -1,2 +1,0 @@
-# laloge.github.io
- 
